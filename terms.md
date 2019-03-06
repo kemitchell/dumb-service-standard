@@ -1,0 +1,2 @@
+# Terms of Dumb Service
+
